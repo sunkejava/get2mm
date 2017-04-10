@@ -1,2 +1,2 @@
 # get2mm
-我oeoeoeidkru
+我oeoeo
